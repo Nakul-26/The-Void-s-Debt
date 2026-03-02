@@ -1,2 +1,3 @@
 # The-Void-s-Debt
 Another story 
+System gate open in cla......
